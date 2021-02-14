@@ -1,1 +1,1 @@
-# B-Philosophy-Religion-Psychology
+# B：哲学宗教心理学
